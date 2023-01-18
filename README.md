@@ -1,0 +1,1 @@
+# Swapica assets
